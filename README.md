@@ -10,6 +10,7 @@ Meu nome é Byanca Santos
 
 0000109352067xsp@al.educacao.sp.gov.br
 
-![descrição do GIF](link GIF do Tenor)
+![https://tenor.com/pt-BR/view/flirty-marie-cat-the-aristocats-gif-11916851)
 
-![]()https://media.tenor.com/WTqJ_jfoyGEAAAAM/flirty-marie.gif
+![](https://media.tenor.com/WTqJ_jfoyGEAAAAM/flirty-marie.gif)
+
